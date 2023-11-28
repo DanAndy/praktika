@@ -1,1 +1,1 @@
-# praktika https://drive.google.com/drive/folders/14Tigr5dHBXX4h46kdsCnLmLeRPqMPlp
+# praktika https://drive.google.com/drive/folders/1AteHIQteahvDlKusLKb7LXA6L7nI0pjA
